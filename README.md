@@ -1,4 +1,4 @@
-## H, I'm [M.Bilal Khalid!](https://github.com/mbilalkhalidofficial) 👋
+## H, I'm [Ahmad haq!](https://github.com/ahmadhaqofficial) 👋
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=iampawan&label=Views&color=blue&style=plastic" alt="iampawan" /> </p>
 
